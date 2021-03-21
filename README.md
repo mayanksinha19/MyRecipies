@@ -1,1 +1,1 @@
-Greetings! Today I'm going to teach you as to make Spicy Vegetable Masala Maggi.
+Greetings! Today I'm going to teach you how to make Spicy Vegetable Masala Maggi.
